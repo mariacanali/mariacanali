@@ -1,4 +1,4 @@
-## bem vinda ao meu perfil 💐
+## bem vinda ao meu perfil 🌼🌞
 
 meu nome e maria eduarda 
 
